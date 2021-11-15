@@ -7,7 +7,8 @@
 ## ⇧ ⇧ ⇧ 請牢記本站最新網址 ⇧ ⇧ ⇧
 
 ### 也可发送任意邮件至 cangshuav@gmail.com 获取最新域名 
-
+### 也可以联系我的 Telegram @cangshuav
+### 也可以联系我的 Skype live:.cid.fa5d6460f8cef374
 ### 本站經常會更換域名,請多記幾個本站域名防止失聯
 
 # 警告 / WARNING
