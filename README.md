@@ -1,8 +1,8 @@
 # 仓鼠AV发布页
 发布页所用代码
 
-# 永久海外发布页 http://csav.tv/
-# 永久观影域名 http://cangshuav.com/
+# 永久海外发布页 https://csav.tv/
+# 永久观影域名 https://cangshuav.com/
 
 ## ⇧ ⇧ ⇧ 請牢記本站最新網址 ⇧ ⇧ ⇧
 
